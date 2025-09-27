@@ -1,1 +1,0 @@
-<html><body><META HTTP-EQUIV="Refresh" CONTENT="0;URL=https://tazztv.trk2afse.com/click?pid=60&offer_id=12"></body></html>
